@@ -1,0 +1,2 @@
+# Regeln
+Amtliche Rechtschreibregeln
